@@ -11,7 +11,9 @@
 1. Take the left bottom corner and folded towards the center of the sheet to form a triangle
 1. Repeat with the left top corner
 1. To the same sides, fold one more time to allign the diagnal fo the triangles to the center line
-1. Bring both sides up and then fold the wings.
+1. Bring both sides up and then fold the wings down.
+1. Test plane by throwing it with style.
+1. You can decorated at your own will.
 1. good luck!
 
 
